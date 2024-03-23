@@ -1,3 +1,1 @@
-jebać wulkany jebać librusa
-najlepszy dziennik jest od kermitusa
-(cringe asf)
+Najlepszy dziennik ever, może go sprzedam
